@@ -3,4 +3,4 @@ séldkfjsdf
 I added this line
 #MOOREE
 
-this line was added at 10:35 am locally. youpie. Bientôt je vais partir et avec un peu de chance avoir un nouvel écran. Prout.
+les gens c'est des cons mais ça va t'es pas malheureux mon couillon <3
